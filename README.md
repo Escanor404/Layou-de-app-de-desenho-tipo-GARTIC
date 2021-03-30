@@ -1,0 +1,1 @@
+# Layou-de-app-de-desenho-tipo-GARTIC
